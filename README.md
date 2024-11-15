@@ -9,6 +9,6 @@
 
 📫 Feel free to reach out to me!
 
-⚡ Fun fact: I am addicted to peanut butter
+⚡Fun fact: I am addicted to peanut butter
 
 
